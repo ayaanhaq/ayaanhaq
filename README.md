@@ -7,7 +7,7 @@
 
 - 📝 Take a look at my portfolio -> [https://www.ayaanhaq.com/](https://www.ayaanhaq.com/)
 
-- 📫 How to reach me **ayaanhaq1106@gmail.com**
+- 📫 Reach me at **ayaanhaq1106@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
